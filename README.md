@@ -1,2 +1,6 @@
 # night-vision-goggles
 do you even see at night? you're about to...
+
+ready...
+set..
+turn off the lights!
